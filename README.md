@@ -10,7 +10,7 @@
 
  ***✨GET SESSION VIA PAIR CODE❤***
  <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a href='https://replit.com/@manulwijethila1/Manu-MD-V6' target="_blank"><img alt='Fork repo' src='https://img.shields.io/badge/Click here to get your credit js-black?style=for-the-badge&logo=opencv&logoColor=white'/></a>
+<a href='https://replit.com/@manulwijethila1/Manul-MD-V6' target="_blank"><img alt='Fork repo' src='https://img.shields.io/badge/Click here to get your credit js-black?style=for-the-badge&logo=opencv&logoColor=white'/></a>
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
